@@ -1,4 +1,4 @@
-# 
+# secure nft sniper bot scripts is the best nft sniper bot scripts with bundle-transactions and bulk-purchases. Safe, reliable, and optimized for NFT sniper, trading, and arbitrage
 
 
 
